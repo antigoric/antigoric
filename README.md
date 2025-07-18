@@ -1,11 +1,11 @@
 call me anti. 
 it/none or (s)he but mainly he/him ..  p-did system & neurodivergent
 
-i love jason voorhees and i've been a riako since 8/14/2015. i am obsessive and possessive although i tend not to bring him up much, please dni if you're gonna compete or lovemail him infront of me. any mentions of ships with jason that isnt newblood will get you killed.
+i love jason voorhees and i've been a riako since 8/14/2015. i tend not to bring him up much, please dni if you're gonna try to compete or lovemail him infront of me. any mentions of ships with jason that isnt newblood will get you killed.
 
 i am aware my ponies look like dogshit. i havent played pt in awhile and im just getting back. so sorry the coloring is basic and that i overuse gradients..
 
 
-interacting is encouraged! i love making new friends! although again, i am usually offtab, so please whisper for a 100% reply. 
+interacting, c+h is encouraged! i love making new friends! although again, i am usually offtab, so please whisper for a 100% reply. 
 
 ![aa](https://files.catbox.moe/6u7d4o.PNG)
