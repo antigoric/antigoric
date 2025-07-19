@@ -6,6 +6,8 @@ i love jason voorhees and i've been a riako since 8/14/2015. i tend not to bring
 i am aware my ponies look like dogshit. i havent played pt in awhile and im just getting back. so sorry the coloring is basic and that i overuse gradients..
 
 
-interacting, c+h is encouraged! i love making new friends! although again, i am usually offtab, so please whisper for a 100% reply. 
+interacting, c+h is encouraged! i love making new friends! i am usually offtab, so please whisper for a 100% reply. 
+
+HOWEVER, if im with my friends, i'd prefer if you didnt randomly c/h with me! interactions are still okay :) 
 
 ![aa](https://files.catbox.moe/6u7d4o.PNG)
