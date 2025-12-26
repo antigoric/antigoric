@@ -7,4 +7,4 @@
 
 ![](https://files.catbox.moe/0cxet7.png)
 
-<img src="https://komarev.com/ghpvc/?username=antigoric&label=flashlight battery&color=a0cce9&style=plastic"> </p>
+<img src="https://komarev.com/ghpvc/?username=antigoric&label=batteries&color=a0cce9&style=plastic"> </p>
