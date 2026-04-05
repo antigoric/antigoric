@@ -1,6 +1,6 @@
 <h4 align="center">
 
-![](https://komarev.com/ghpvc/?username=ineptly&color=F181A9&label=parseltongues)
+![](https://komarev.com/ghpvc/?username=ineptly&color=F181A9&label=wanderers)
 
  </h4> 
  <p align="center"> 
